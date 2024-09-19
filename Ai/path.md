@@ -1,0 +1,1 @@
+/Users/Ahmed/Library/Preferences/Adobe Illustrator 28 Settings/en_AE/

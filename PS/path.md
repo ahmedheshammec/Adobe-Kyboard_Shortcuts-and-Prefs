@@ -1,0 +1,1 @@
+/Users/Ahmed/Library/Preferences/Adobe Photoshop 2024 Settings/
